@@ -47,4 +47,4 @@ Atuar como **estagiária ou desenvolvedora júnior front-end**, colocando em pr�
 ## 🌐 Contato
 
 - 💌 E-mail: amandamiranda.profissional@gmail.com
-- 📁 Portfólio: [Link do portfólio(https://designux.notion.site/Amanda-Krishna-Miranda-Santos-0b2c252fcd5a4551a4e90b882ff0e1ab?pvs=74)https://designux.notion.site/Amanda-Krishna-Miranda-Santos-0b2c252fcd5a4551a4e90b882ff0e1ab?pvs=74]
+- 📁 Portfólio: [Acesse meu portfólio no Notion](https://designux.notion.site/Amanda-Krishna-Miranda-Santos-0b2c252fcd5a4551a4e90b882ff0e1ab?pvs=74)
